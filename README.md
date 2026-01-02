@@ -4,7 +4,7 @@ this entire account's purpose is to let my friend list know a part that isn't th
 
 don't interact:
 * endos and people who believe they exist
-* people who treat introjected parts as actual fictional characters/real people ([please learn what introjection in did actually is lol](https://medcraveonline.com/JPCPY/introjection-and-dissociative-identity-disorder-a-case-report.html))
+* people who treat introjected parts as actual fictional characters ([please learn what introjection in did actually is lol](https://medcraveonline.com/JPCPY/introjection-and-dissociative-identity-disorder-a-case-report.html))
 * "i wish i was a system" people
 
 before interacting
