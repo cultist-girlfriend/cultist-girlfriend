@@ -5,7 +5,7 @@ my chat is always off whisper to interact
 my dni: 
 * people who wish they had did/osdd-1, you stank.
 * endogenic systems / non-disordered systems. you stank and are chronic tumblrites.
-* academy maniacs fantheys in specific you stank stank like *bad*. not even mexia could compare to the stank.
+* academy maniacs fantheys in specific you stank stank like *bad*. 
 * under 15 no offense i'm almost 18 so it's weird to be talking to someone i view as a baby basically
 
 what to know before interacting:
