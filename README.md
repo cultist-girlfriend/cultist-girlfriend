@@ -10,3 +10,6 @@ don't interact:
 before interacting
 * some of my parts are edgy-in-nature and make dark jokes. they'll stop upon request just tell them ok?
 * i won't respond at all my parts prefer to stick to friends only ok?
+
+  <img width="674" height="717" alt="image" src="https://github.com/user-attachments/assets/7d4f51d7-5202-40c7-a738-4eee128efb69" />
+
