@@ -2,11 +2,18 @@ i lowk dont know what to put here my names kit or kita i'm a part in someone wit
 
 my chat is always off whisper to interact
 
+i really like
+* industrial music, specifically jesus loves junkies, Собаки Табака, and grand folly
+* gorestreet :drooling_face:
+* postal 1 + 2
+* somewhat of a fan of purgen just not a lot i'm not a big fan of rock/metal
+* i am a fan of kmfdm just not a fan of their [recent decisions](https://www.facebook.com/officialkmfdm/posts/1298668901617453/)
+
 my dni: 
 * people who wish they had did/osdd-1, you stank.
 * endogenic systems / non-disordered systems. you stank and are chronic tumblrites.
 * academy maniacs fantheys in specific you stank stank like *bad*. 
-* under 15 no offense i'm almost 18 so it's weird to be talking to someone i view as a baby basically
+* under 15. no offense, i'm almost 18 so it's weird to be talking to someone born in like 2012... 2011...
 
 what to know before interacting:
 * i make jokes that are edgy, dark, or make no sense. idk why don't ask me if you don't like it i'll stop
