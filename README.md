@@ -6,7 +6,6 @@ don't interact:
 * endos and people who believe they exist
 * people who treat introjected parts as actual fictional characters ([please learn what introjection in did actually is lol](https://medcraveonline.com/JPCPY/introjection-and-dissociative-identity-disorder-a-case-report.html))
 * "i wish i was a system" people
-* if you glorify any part of the disorder especially alters please fuck off thanks
 
 before interacting
 * some of my parts are edgy-in-nature and make dark jokes. they'll stop upon request just tell them ok?
