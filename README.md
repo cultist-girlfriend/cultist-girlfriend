@@ -1,8 +1,12 @@
-do not interact unless friends
+this entire account's purpose is to let my friend list know a part that isn't the host is fronting.
 
-spam follow = block fuck off
+**i am a person with did. don't refer to me as a system it makes me uncomfortable.** alternatives to calling me a system include a person with did or just a person.
 
-main: @jesusluvsjunkies
+don't interact:
+* endos and people who believe they exist
+* people who treat introjected parts as actual fictional characters/real people ([please learn what introjection in did actually is lol](https://medcraveonline.com/JPCPY/introjection-and-dissociative-identity-disorder-a-case-report.html))
+* "i wish i was a system" people
 
-account purpose is just to exist + tell people i'm a person w/ did without plastering it on my pony cuz i find that cringe
-
+before interacting
+* some of my parts are edgy-in-nature and make dark jokes. they'll stop upon request just tell them ok?
+* i won't respond at all my parts prefer to stick to friends only ok?
