@@ -7,7 +7,7 @@ i really like
 * gorestreet :drooling_face:
 * postal 1 + 2
 * somewhat of a fan of purgen just not a lot i'm not a big fan of rock/metal
-* i am a fan of kmfdm just not a fan of their [recent decisions](https://www.facebook.com/officialkmfdm/posts/1298668901617453/)
+* i am a fan of kmfdm just not a fan of their [recent](https://www.facebook.com/officialkmfdm/posts/1298668901617453/) [decisions](https://www.facebook.com/photo.php?fbid=122142704744407527&set=p.122142704744407527&type=3)
 
 my dni: 
 * people who wish they had did/osdd-1, you stank.
