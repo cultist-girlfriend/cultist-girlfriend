@@ -1,75 +1,33 @@
+<img src="https://github.com/user-attachments/assets/61458ce1-cf5f-411e-a6ce-bc1eb1e0d5d3" width="420" alt="i love shockstars 2004" align="right">
+<div align="center">
+ <table>
+  <td>
+   <div align="center">
+    
+![](https://komarev.com/ghpvc/?username=your-github-rancidstalker&color=4c0000&style=flat&label=shockfiends&abbreviated=true)
 
-
-　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=your-github-rancidstalker&color=4c0000&style=flat&label=shockfiends&abbreviated=true)
-
-　　　　　　　　　　　　　　　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s4qavvcn7yuiplcduxtdoxhiy&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=732424&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=s4qavvcn7yuiplcduxtdoxhiy&redirect=true)
-
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s4qavvcn7yuiplcduxtdoxhiy&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=732424&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=s4qavvcn7yuiplcduxtdoxhiy&redirect=true)
+</div>
+  </td>
+</table>
+</div>
 <!-- Language used here is a mix of LaTEX and html. It's a pain don't even bother -->
  <!--intro begin-->
+
 <div align="center">
 <table>
   <td>
-    <img src="https://i.postimg.cc/WbJ263hC/1195718929578987620.gif">
-   　 ${{\color{#dc0000}\underline{\text{my name is kita or kit.}}}}$ </br>
-${{\color{#dc0000}\underline{\text{my pronouns are he/it. i am aroace and a cisman}}}}$ </br>
-${{\color{#dc0000}\underline{\text{part of a fragmented identity (alter / did)}}}}$ </br>
-${{\color{#dc0000}\underline{\text{sp/sx 8w9 chaotic evil esfp}}}}$ </br>
-${{\color{#dc0000}\underline{\text{my main account is @jesusluvsjunkies}}}}$ </br>
+${{\color{#dc0000}{\text{my name is nikita or kit.}}}}$ </br>
+${{\color{#dc0000}{\text{my pronouns are he/it. no they/them thx.}}}}$ </br>
+${{\color{#dc0000}{\text{iwec or just straight up do not interact}}}}$ </br>
+${{\color{#dc0000}{\text{i have d.i.d. this affects me.}}}}$ </br>
+${{\color{#dc0000}{\text{sp/sx 8w9 chaotic evil esfp}}}}$ </br>
+${{\color{#dc0000}{\text{discord: jesusluvsjunkies}}}}$ </br>
+ </br>
+<img src="https://64.media.tumblr.com/a4e1f92fcfdc89dd482b3f57ac251bd3/e6c3d6e24bb9e481-e0/s250x400/504e1c12467a4fe755959975ea8ea91fdb428dfc.gif"><img src="https://64.media.tumblr.com/107af0204c4c2026838052a67b4cc328/e6c3d6e24bb9e481-e9/s250x400/53cf2f0c6d9a7178d35d595978ff99534b381d98.gif">
   </td>
 </table>
  </div>
  <!--intro end-->
-<!--interests begin-->
-<div align="center">
- <table>
-  <td>
-<details>
-  <summary>${{\color{#dc0000}\underline{\text{interests}}}}$</summary>
-${{\color{#dc0000}\underline{\text{﹒industrial music. favorite artists are jesus loves junkies, grand folly, and Собаки Табака}}}}$ </br>
-${{\color{#dc0000}\underline{\text{﹒gorestreet <33}}}}$ </br>
-${{\color{#dc0000}\underline{\text{﹒black metal. favorite artists are stagnant waters and lifelover}}}}$ </br>
-${{\color{#dc0000}\underline{\text{﹒sort of like cybergrind and hardcore punk}}}}$ </br>
-${{\color{#dc0000}\underline{\text{﹒sort of into typology due to passive influence}}}}$ </br>
-<!--contents end-->
-  </details>
-  </td>
-</table>
-</div>
-<!--interests end-->
-
-<!--byi begin-->
-<div align="center">
-  <table>
-  <td>
-<details>
-  <summary>${{\color{#dc0000}\underline{\text{before you interact}}}}$</summary>
-<!--contents begin-->
-${{\color{#dc0000}\underline{\text{﹒i avoid friendships due to my mental state.}}}}$ </br>
-${{\color{#dc0000}\underline{\text{﹒i can be very aggressive, rude, or passive aggressive.}}}}$ </br>
-${{\color{#dc0000}\underline{\text{﹒may be dry or grow distant.}}}}$ </br>
-${{\color{#dc0000}\underline{\text{﹒i use slurs i can reclaim}}}}$ </br>
-${{\color{#dc0000}\underline{\text{﹒if you're under 15 don't try to get close to me.}}}}$ </br>
-${{\color{#dc0000}\underline{\text{﹒i dont like being called a system for personal reasons. just call me a person with did.}}}}$ </br>
-<!--contents end-->
-  </details>
-  </td>
-</table>
-</div>
-<!--byi end-->
-
-<!--dni begin-->
-<div align="center">
- <table>
-  <td>
-<details>
-  <summary>${{\color{#dc0000}\underline{\text{do not interact}}}}$</summary>
-<!--contents begin-->
-${{\color{#dc0000}\underline{\text{﹒endogenics and people who think they're real.}}}}$ </br>
-${{\color{#dc0000}\underline{\text{i block freely}}}}$ </br>
-<!--contents end-->
-  </details>
-  </td>
-</table>
-</div>
-<!--dni end-->
+ </br>
+ 
